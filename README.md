@@ -1,0 +1,1 @@
+# shohruhtehnikum.github.io
